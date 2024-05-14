@@ -1,0 +1,1 @@
+# Solucionario-PracticalMultivariateAnalysis-Abdelmonem
